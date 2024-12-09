@@ -1,3 +1,5 @@
+# ACTUALMENTE EL BOOTCAMP DEJO DE EXISTIR, PERO ESTE ERA EL CONTENIDO
+
 Carrera EGG Bootcamp
 
 Duración y Contenidos:
